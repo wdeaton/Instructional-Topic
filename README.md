@@ -7,7 +7,7 @@ Type: How to paper
 
    When you look at a calf, what do you see? 
    
-   ![Calf]( 
+   ![Calf](
    
    Beside the cute face and adorableness of a newborn animal, you see an animal. Now, how old is that newborn? Who is their mother, their father, or have they been vaccinated for newborn diseases? Better yet, what is that animal's name? I would like to explain and go over protocols for processing a calf, and registering it, so we can answer all these questions and help the calf grow into a strong and healthy animal. This process is typical for newborns, and at the College of the Ozarks beef farm, our cattle are registered. This means that all our cattle have names, numbers, and records of everything they have had done. There are four main steps in total for processing a calf. The first is to access, second is to process, third is to record information, and lastly is registration. Once you have completed these steps, you will have a completely processed calf. 
 
