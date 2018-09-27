@@ -15,6 +15,10 @@ Type: How to paper
 ## Step One ##
  The first, and most crucial, step when processing calves is to watch the mother and her newborn. You do not want to process the calf if it has amniotic fluid on it. Amniotic fluid is what nurtures the calf in the mother's womb. Being wet with this fluid means that the mother has not had enough time to lick her baby clean of the amniotic fluid and she has not had enough time to bond with her calf. When it comes to the wellbeing of the calf, the mother to calf bond is detrimental. If there is no bond, then the mother will not take care of the calf. When approaching the pair, approach carefully. If you are close enough to see if the calf has amniotic fluid on it, then your close enough for the mother to hurt you. If the mother lets you approach and the calf is dry, then you can begin processing. 
  
+ ![mom and baby](https://www.facebook.com/photo.php?fbid=10213115133866525&set=pb.1639483556.-2207520000.1538061724.&type=3&size=720%2C960)
+ 
+ 
+ 
  ## Step Two ##
    The second step is a long step; it is processing the calf. In this step, it does come in handy to have someone else help. They can hand equipment over or help hold the calf. Better yet, they can watch the mother while processing. Before processing, run a mental checklist before you get to the calf to make sure you have all your gear ready. What is needed are a scale for weight, screwworm spray, a tagger with a tag, two generic vaccines for newborn calves, and a book with a pen for records. The calf then gets a vaccine via the nose and mouth, a tag in their left ear for identification, get its' weight, spray for screwworm, and get the gender of the calf. The vaccines help the calf fight off newborn diseases while boosting its' immunity to future diseases. The tag will have a College of the Ozarks stamp on it as well as a number for easy identification. The weight and gender of the calf are for records and the screwworm spray helps keeps flies off the naval and posterior end of the calf. From this step, and for records, you will need to write down the calf's tag number, weight, and gender. Now you are ready to insert information into records. 
  
