@@ -25,6 +25,8 @@ Type: How to paper
  
  ## Step Four ##
    Lastly, registering the calf is the final step. All of this information recorded from the mother, father, and newborn create the baby's final step in processing. All the data is filled out on a special form and sent off to the registration association where they will look over and accept the calf's pedigree. A pedigree is a data sheet that tells the past, present, and future of that animal. A 'how to paper' could be wrote on how to read pedigrees and expected progeny differences, so this is a very basic idea of what pedigrees can tell. Pedigrees are important because it lists all the traits of that calf, help determine how productive the calf will be, and it lets anyone see who that calf really is. In any registered herd, you must have pedigrees to sell with your animal. 
+   
+![Epd and pedigree](https://github.com/wdeaton/Instructional-Topic/blob/master/Book1.xlsx)
 
 ## Conclusion ##
    When processing calves, please be careful. Thoroughly access whether the calf and mother are ready for processing. This is imperative for you safety and the calf's wellbeing. Make sure all the gear is ready before you process, and be sure to record all the information from the calf while processing. Typically, it is easier to have help when doing this step. After processing, record the mother's characteristics and fathers for future records. No processing is complete until the whole family is there. Lastly, register all the animal's information and then you have completed processing a newborn calf. 
